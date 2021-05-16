@@ -10,7 +10,7 @@ I am now working at Tencent🐧 （Shenzhen 🏠💴
 
 #### My hobbies ♥  
 
-Gameplay, Game Animation and Computer Graphics📺 (  ~~But Not Good~~  ). 
+Gameplay, Game Animation and Computer Graphics📺 (  ~~But Not Good~~  )
 
 JRPG, Nintendo And FC Barcelona⚽（ ~~But Not Good~~ ） 
 
